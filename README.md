@@ -22,8 +22,7 @@
 ---
 
 ## 📫 Connect with Me  
-- 🌐 Portfolio: Coming Soon  
-- 💼 LinkedIn: Add link here  
-- 🎨 Behance/Dribbble: Add link here  
+- 💼 LinkedIn: www.linkedin.com/in/prerona-giri
+
 
 ✨ Always learning, always creating!
